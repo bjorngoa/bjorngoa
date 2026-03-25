@@ -1,4 +1,4 @@
-### Hei, jeg heter Bjørn Ole 👋. 
+### Hei, jeg heter Bjørn Ole 👋
 
 
 ##### 📫 Du finner meg her:
