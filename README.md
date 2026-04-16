@@ -1,5 +1,5 @@
 ### Hei, jeg heter Bjørn Ole 👋
-<img src="https://media.giphy.com/media/3o7abB06u9bNzA8lu8/giphy.gif" width="360" />
+<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExaXBnMGw1NHRweThkemd0MzBtenVhMG5jNmExeWVtZXIxc2s0cjc2eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3ornk57KwDXf81rjWM/giphy.gif" width="720" />
 
 ##### 📫 Du finner meg her:
 <a  href="https://no.linkedin.com/in/bj%C3%B8rn-ole-g-81b83b212?trk=profile-badge" target="_blank">
